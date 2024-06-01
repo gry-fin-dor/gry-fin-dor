@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate STARTUPS
 - 📫 How to reach me ...
 e-mail: soumyasethi527@gmail.com
-
 contact: 9040950756
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am good in face portraits 
